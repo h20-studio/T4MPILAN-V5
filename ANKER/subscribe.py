@@ -1,2 +1,2 @@
 JANGAN RECOD KONTOL RECOD=GANTI AUTOR PAHAM KAGA ANJING
-https://www.youtube.com/c/HendarOfficial1
+
